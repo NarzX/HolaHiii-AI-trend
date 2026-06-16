@@ -1,2 +1,0 @@
-# HolaHiii-AI-trend
-ai
